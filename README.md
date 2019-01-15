@@ -31,3 +31,11 @@ So, after many courses, I decided to move me and start to use the language day b
 	Do you know Grammarly? 
   
     Well, Grammarly is an application to help write correctly (right now during this article, I used lol). In my case, I have Premium access, and I pay 25 dollars per month, and I have some things like a personal dashboard and know how many sentences I wrong during the text. The statistic about how many penalties I wrong every word numbers (example, I have three errors every 100 words) and show me what kind of mistakes I make (prepositions, lack of synonyms,  how many unique words I used, etc.). Follow the  [Grammarly website:](https://www.grammarly.com/about).
+
+5. **Start to write in English in meetings**
+
+	Yes I know, is too difficult to talk in Portuguese and write in English, but, you need to create the habit to think in English some things.
+	Is probably you get lost in a meeting because you need to understand in Portuguese and think in English and write in English, so, keep calm and go.
+	For testers, start to write your test cases and gherkins in English and show to other your annotations and take feedback about that (remember, just Americans and British and Australian are fluent in English right). 
+
+
