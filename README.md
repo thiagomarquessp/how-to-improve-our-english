@@ -35,7 +35,19 @@ So, after many courses, I decided to move me and start to use the language day b
 5. **Start to write in English in meetings**
 
 	Yes I know, is too difficult to talk in Portuguese and write in English, but, you need to create the habit to think in English some things.
+
 	Is probably you get lost in a meeting because you need to understand in Portuguese and think in English and write in English, so, keep calm and go.
+
 	For testers, start to write your test cases and gherkins in English and show to other your annotations and take feedback about that (remember, just Americans and British and Australian are fluent in English right). 
 
+6. **Follow Youtube Channels**
 
+	Youtube having some channels to help to improve our English and I like to follow these channels:
+
+	a. [Rachels English](https://www.youtube.com/user/rachelsenglish). In my case, I pay the course every month, and I have full access to new videos and Live Classes and one time per month I have a particular class with her per one hour (master coaching) and I remove my blocks and doubts. This is an opportunity to talk with a native speaker and training your listening.
+
+	This channel help me to improve my English in [job interviews](https://www.youtube.com/watch?v=yBtMwyQFXwA&list=PLrqHrGoMJdTTAUF6xjlAtW27NYxtYzNu7).
+
+	b. [English 101](https://www.youtube.com/user/ENGLISHCLASS101) (Teacher Alisha) is my favourite (I do not pay yet) channel because Alisha is an excellent teacher and the classes are funny and instructive. 
+
+	If possible, always watch the same video to training your listening. 
