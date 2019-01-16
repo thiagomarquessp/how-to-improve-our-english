@@ -70,8 +70,9 @@ So, after many courses, I decided to move me and start to use the language day b
 	Speak English should be a fun process, put in your head this idea and go on.
 
 
-Sorry about my English and Thank you so much.
+
+***Sorry about my English and Thank you so much.
+
+***If you someone to talk and pratice, count on me right!!
 
 See you soon!
-
-If you someone to talk and pratice, count on me right!!
