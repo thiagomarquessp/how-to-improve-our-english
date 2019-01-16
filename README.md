@@ -1,4 +1,4 @@
-# How to improve your English - Tips and Tricks
+# How to improve our English - Tips and Tricks
 
 Hey folks.
 
