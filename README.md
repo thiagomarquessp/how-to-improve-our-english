@@ -51,3 +51,27 @@ So, after many courses, I decided to move me and start to use the language day b
 	b. [English 101](https://www.youtube.com/user/ENGLISHCLASS101) (Teacher Alisha) is my favourite (I do not pay yet) channel because Alisha is an excellent teacher and the classes are funny and instructive. 
 
 	If possible, always watch the same video to training your listening. 
+
+7. **If you like something, reading it**
+
+	I love soccer, and I read about that in the newspaper or websites around the world (like English tournaments or USA soccer tournaments). To read something you like in English is most comfortable because of some terms about this theme you know.
+
+8. **Everybody does not speak English very well**
+
+	Think about this, the Americans or British folks speaking wrong too, receive four, five, etc. in grammar classes, so, do not afraid to talk wrong English right? Try to pass the message and improve as well.
+	When I was doing interviews from Europe, I received many NOT and sent an email to the interviewer asking "How can I improve my English?" or "Where my English is bad?" and sometimes the interviewer send me an email answered my questions, and I try again and again.
+
+9. **Just speak**
+
+	Just speak, do it and try to improve every day and celebrate each interview, notes in your notebook, the good dashboard in Grammarly, celebrate when you understand one phrase in your favourite TV series, movies, celebrate when you know one leaf about your favourite books. 
+
+10. **Enjoy**
+
+	Speak English should be a fun process, put in your head this idea and go on.
+
+
+Sorry about my English and Thank you so much.
+
+See you soon!
+
+If you someone to talk and pratice, count on me right!!
