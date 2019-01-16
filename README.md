@@ -71,8 +71,8 @@ So, after many courses, I decided to move me and start to use the language day b
 
 
 
-***Sorry about my English and Thank you so much.
+***Sorry about my English and Thank you so much.***
 
-***If you someone to talk and pratice, count on me right!!
+***If you someone to talk and pratice, count on me right!!***
 
 See you soon!
