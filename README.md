@@ -1,9 +1,10 @@
 # How to improve our English - Tips and Tricks
 
-Hey folks.
+Hello everybody.
 
 In my first article in English, and I would like to write some ways I use to improve my English.
-So, it´s essential to think about the change our mindset about English. In my case, I had a blocked with English and to be honest, I always feel fear because of people still sad to me "You need obligatory to learn English, or you do not should success in your professional life!" and some words like "obligation" do not help to improve nothing.
+So, it´s essential to think about the change our mindset about English. In my case, I had a blocked with English and to be honest, sometimes I felt fear because of people still sad to me "You need obligatory to learn English, or you do not should success in your professional life!" and some words like "obligation" do not help to improve nothing.
+
 So, after many courses, I decided to move me and start to use the language day by day, and I talked with my friends of speaking English very well and take some ideas to apply in my life. Follow the insights.
 
 1. **Change the language in your all types of equipment (cell phones, computer, tablets, all kind of applications)  from Portuguese to English (American or British), and you need to get used to every day in English**
@@ -58,8 +59,7 @@ So, after many courses, I decided to move me and start to use the language day b
 
 8. **Everybody does not speak English very well**
 
-	Think about this, the Americans or British folks speaking wrong too, receive four, five, etc. in grammar classes, so, do not afraid to talk wrong English right? Try to pass the message and improve as well.
-	When I was doing interviews from Europe, I received many NOT and sent an email to the interviewer asking "How can I improve my English?" or "Where my English is bad?" and sometimes the interviewer send me an email answered my questions, and I try again and again.
+	Think about this, the American or British people speak wrong too, they can have grades like four or five in grammar classes, so, do not be afraid to speak wrong when speaking in English, right? Focus on communicate, passing the message so you can improve as well. When I was doing interviews from Europe, I received many NOT's and sent an email to the interviewer asking "What can I improve on English?" or "Which errors I commit?" and sometimes they answered me; and always keep trying.
 
 9. **Just speak**
 
@@ -67,12 +67,10 @@ So, after many courses, I decided to move me and start to use the language day b
 
 10. **Enjoy**
 
-	Speak English should be a fun process, put in your head this idea and go on.
-
-
-
-***Sorry about my English and Thank you so much.***
+	Speak English should be a fun way, put in your head this idea and go on.
 
 ***If you someone to talk and pratice, count on me right!!***
+
+***Help me to improve this document if you saw something wrong.***
 
 See you soon!
